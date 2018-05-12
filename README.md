@@ -1,0 +1,2 @@
+# NEW-AI
+YAPAY GERZEK
